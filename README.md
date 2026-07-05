@@ -9,3 +9,6 @@
 <img src="https://adriansblinkiecollection.neocities.org/f55.gif" width="200" alt="Анимация">
 <img src="https://64.media.tumblr.com/a24a72de3e4477cd682a7e0b9e5f059c/5f39d69504ad5955-39/s250x400/9a08306111aad921ee0c52f604b964eb4f4ab6d0.gifv" width="200" alt="Анимация">
 <img src="https://adriansblinkiecollection.neocities.org/z33.gif" width="200" alt="Анимация">
+<img src="https://64.media.tumblr.com/274cf4421485bb5467d628755d8269b1/47d80ed329b92205-9f/s250x400/2b1a266767269a2eef2497d2db40177828cc8a42.gifv" width="200" alt="Анимация"> <img src="https://64.media.tumblr.com/4e2d0882881ad1de667d9520ea225107/2ed01964368ee3a9-15/s250x400/8b6794d9782ef3f3ba6ab1eb116eca1c632de1fd.gifv" width="200" alt="Анимация">
+<img src="https://64.media.tumblr.com/da21737bfb1c38fe4aac37b4c494563c/9898e3b10f6fd1d0-27/s250x400/2bd3bfe91d08418dbb74ce8ed540d2fae83ea5d5.gifv" width="200" alt="Анимация"> <img src="https://adriansblinkiecollection.neocities.org/f18.gif" width="200" alt="Анимация"> 
+<img src="https://64.media.tumblr.com/a081728e1684300420c33c1da39b31fa/90b5504b31b9aa96-70/s250x400/9f7d16203e2e7cf4c894740998d0637336b44d03.gifv" width="200" alt="Анимация"> <img src="https://64.media.tumblr.com/ec06462e37f6d659a81fdc65b445550e/44ad57a146d068f3-78/s250x400/234db616be0a9e6229710ac412c498f3260b6080.gifv" width="200" alt="Анимация">
