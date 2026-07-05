@@ -1,2 +1,2 @@
 # BlackGothKitty-
-<img src="https://media1.tenor.com/m/_9HJRe0WKnEAAAAd/joseph-desaulnier-joseph.gif.gif" width="300" alt="Анимация">
+<img src="https://www.bing.com/images/search?view=detailV2&ccid=0udZKLjE&id=D96FE1FF3C2CF2BE6E8BD3748B67AF78A62C8381&thid=OIP.0udZKLjEVa_FS_87PVVPLQHaFs&mediaurl=https%3a%2f%2fimg1.picmix.com%2foutput%2fstamp%2fnormal%2f0%2f4%2f5%2f8%2f2808540_1a7db.gif&cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.d2e75928b8c455afc54bff3b3d554f2d%3frik%3dgYMspnivZ4t00w%26pid%3dImgRaw%26r%3d0&exph=384&expw=500&q=mana+sama+gif&FORM=IRPRST&ck=450E9279E5C2F7AC268B1AE74B895F61&selectedIndex=13&itb=0.gif" width="300" alt="Анимация">
