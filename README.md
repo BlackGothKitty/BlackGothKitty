@@ -2,8 +2,8 @@
    <img src="https://img1.picmix.com/output/stamp/normal/0/4/5/8/2808540_1a7db.gif" width="400" alt="Анимация">
                                                                                                   <img src="https://64.media.tumblr.com/9f499802babc2a1d5c9b80d7a7dc2ea7/2ed01964368ee3a9-ab/s250x400/90639e6bb083f4b3f6221064e0a828907bd5d9b7.gifv" width="200" alt="Анимация"> <img src="https://wilardo.crd.co/assets/images/gallery26/54b3ed55.gif?v=31132c10" width="200" alt="Анимация">
 <img src="https://blinkies.cafe/b/blinkiesCafe-IH.gif" width="200" alt="Анимация">
-<img src="https://64.media.tumblr.com/b00b9504fd4b6f356036e33f59241128/b358aa43ae8c09a1-f4/s250x400/392153786cb09814465556eab09b2602a97a38bf.gifv" width="200" alt="Анимация">
-<img src="https://64.media.tumblr.com/2ae733182647be60c2274c3a4241029c/91be65687fc9e87e-3c/s250x400/72f95d02a49506afd4ba2bcf4720ca3ea6e34953.gifv" width="200" alt="Анимация">
+<img src="https://64.media.tumblr.com/b00b9504fd4b6f356036e33f59241128/b358aa43ae8c09a1-f4/s250x400/392153786cb09814465556eab09b2602a97a38bf.gifv" width="200" alt="Анимация"> 
+<img src="https://64.media.tumblr.com/2ae733182647be60c2274c3a4241029c/91be65687fc9e87e-3c/s250x400/72f95d02a49506afd4ba2bcf4720ca3ea6e34953.gifv" width="200" alt="Анимация"> <img src="https://64.media.tumblr.com/1a13d39991689a72e8c93f3b63041702/26538cc3d576717f-10/s250x400/ccc551a22d6c9b085fa46e4c6705da192aeb1378.webp" width="200" alt="Анимация">
 <img src="https://64.media.tumblr.com/02fccfd929e7755401c22bea3c0614a7/c8864d5bf7463398-b0/s250x400/253b569fecc4028a0a943dfc3fe426453700bb40.gifv" width="200" alt="Анимация">
 <img src="https://gifcity.carrd.co/assets/images/gallery24/a65e4188.gif?v=3fc8f5cd" width="200" alt="Анимация"> <img src="https://64.media.tumblr.com/c11fa24c2c81f7915e56b789d227946b/c84f952164b37d6c-c5/s250x400/26cd31987282709336ae66076e9101f13d6d88cc.gifv" width="200" alt="Анимация">
 <img src="https://64.media.tumblr.com/73cc337e63d776dcb9fa124ed6ed85d4/9c1fc8ca6e5a65ab-18/s250x400/b74846131c3b87e4cfe197322f4545b93dd83d59.gifv" width="200" alt="Анимация">
