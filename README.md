@@ -4,7 +4,7 @@
 
 
 <img src="https://64.media.tumblr.com/b00b9504fd4b6f356036e33f59241128/b358aa43ae8c09a1-f4/s250x400/392153786cb09814465556eab09b2602a97a38bf.gifv" width="200" alt="Анимация"> 
-<img src="https://64.media.tumblr.com/2ae733182647be60c2274c3a4241029c/91be65687fc9e87e-3c/s250x400/72f95d02a49506afd4ba2bcf4720ca3ea6e34953.gifv" width="200" alt="Анимация"> <img src="https://blinkies.cafe/b/blinkiesCafe-2l.gif" width="200" alt="Анимация">  <img src="https://blinkies.cafe/b/blinkiesCafe-IH.gif" width="200" alt="Анимация">
+<img src="https://64.media.tumblr.com/2ae733182647be60c2274c3a4241029c/91be65687fc9e87e-3c/s250x400/72f95d02a49506afd4ba2bcf4720ca3ea6e34953.gifv" width="200" alt="Анимация"> 
 <img src="https://64.media.tumblr.com/a766b524960614026532535b75d2a394/8363a61d16167294-0d/s250x400/333a0ffe2033507f7831fd834ce9023429e14df3.gifv" width="200" alt="Анимация"> <img src="https://64.media.tumblr.com/a13f6486688d76a711f2b7ac114f56ac/8363a61d16167294-cc/s250x400/343e0e3f1abcdd4e7c17ad9fc6b2506d56b946a6.gifv" width="200" alt="Анимация"> <img src="https://64.media.tumblr.com/142d19837d56802bd3810325a4b9e9b1/15b6d532835c7bd8-9c/s250x400/c5712b02da6701ad4c2144af08d1f736827e3680.webp" width="200" alt="Анимация"> 
  <img src="https://64.media.tumblr.com/1a13d39991689a72e8c93f3b63041702/26538cc3d576717f-10/s250x400/ccc551a22d6c9b085fa46e4c6705da192aeb1378.webp" width="200" alt="Анимация">
 <img src="https://64.media.tumblr.com/02fccfd929e7755401c22bea3c0614a7/c8864d5bf7463398-b0/s250x400/253b569fecc4028a0a943dfc3fe426453700bb40.gifv" width="200" alt="Анимация"> <img src="https://64.media.tumblr.com/9f499802babc2a1d5c9b80d7a7dc2ea7/2ed01964368ee3a9-ab/s250x400/90639e6bb083f4b3f6221064e0a828907bd5d9b7.gifv" width="200" alt="Анимация"> 
